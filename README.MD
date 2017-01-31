@@ -2,10 +2,10 @@
 
 #DUMPPP IS THE NEW NO.
 
-###*No to a boring screen.*
+###*No to boring screens.*
 
-###*No to an automated serendipity.* 
+###*No to automated serendipities.* 
 
-###*No to a seamless experience.*
+###*No to seamless experiences.*
 
 ###*Dumppp freezes bugs, poetry, wtf, timelapses, ASCII, scribbles, intertext, hypertext etc.*
